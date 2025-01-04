@@ -1,2 +1,2 @@
 # vanity-sniper
-coluk cocugun botları alın kullanın tesekkure gerek yok discord: apifucker
+kod dılenen bır coluk cocugun botu alın kullanın tesekkure gerek yok :) discord: apifucker
